@@ -31,4 +31,4 @@ My next steps are: process the answers I got from the artisans by asking, “Wha
 By combining two sets of data, and put them into one map that could exhibit the emotional gap between the two groups, which reflects the need of my thesis intervention.
 
 Here is the final !!! 
-Google Drive Link: https://drive.google.com/file/d/1xXtcrsvuFjICgAEIuDDKkBinq-H-gwge/view?usp=sharing
+https://drive.google.com/file/d/1xXtcrsvuFjICgAEIuDDKkBinq-H-gwge/view?usp=sharing
