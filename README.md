@@ -30,4 +30,5 @@ Another challenge is the translation. English and Chinese are two totally differ
 My next steps are: process the answers I got from the artisans by asking, “What do you think the local community thinks of you?”. Similarly, to compare the data from the artisans’ side and from the local community side. (From my current research, the artisans are lack of and need emotional support from the local community to continue their work.)
 By combining two sets of data, and put them into one map that could exhibit the emotional gap between the two groups, which reflects the need of my thesis intervention.
 
-Here is the final !!! Thank you so much Joey!!
+Here is the final !!! 
+Google Drive Link: https://drive.google.com/file/d/1xXtcrsvuFjICgAEIuDDKkBinq-H-gwge/view?usp=sharing
